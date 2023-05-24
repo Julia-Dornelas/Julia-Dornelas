@@ -1,2 +1,2 @@
-- IFTM, 2° ano Técnico em Informática
+- 2° ano Técnico em Informática
 - 17 anos 
