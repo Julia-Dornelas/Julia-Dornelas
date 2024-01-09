@@ -1,2 +1,2 @@
-- 2° ano Técnico em Informática
+- 3/3 Técnico em Informática
 - 17 anos 
