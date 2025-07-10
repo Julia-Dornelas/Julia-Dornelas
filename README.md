@@ -1,2 +1,3 @@
-- 3/3 Técnico em Informática
-- 18 anos 
+- Técnico em Informática
+- Cursando Gestão da Informação
+- 10 anos 
