@@ -1,3 +1,2 @@
 - Técnico em Informática
 - Cursando Gestão da Informação
-- 10 anos 
